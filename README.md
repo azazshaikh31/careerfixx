@@ -17,10 +17,10 @@ Agar aap paise invest karne ya join karne ka soch rahe hain, toh koi bhi decisio
 
 For more info on this, watch below video 👇
 
-[![Watch the video](https://img.youtube.com/vi/urnY8oANAkk/maxresdefault.jpg)](https://youtu.be/urnY8oANAkk)
+[![Watch the video](https://img.youtube.com/vi/urnY8oANAkk/maxresdefault.jpg)](https://www.youtube.com/watch?v=urnY8oANAkk)
 
 <p align="center">
   <strong>🎥 Watch the video below <br>👇 </strong>
-  <br><a href="https://youtu.be/urnY8oANAkk">https://youtu.be/urnY8oANAkk</a>
+  <br><a href="https://www.youtube.com/watch?v=urnY8oANAkk">https://www.youtube.com/watch?v=urnY8oANAkk</a>
 </p>
 <br>
