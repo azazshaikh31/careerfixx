@@ -17,10 +17,10 @@ Agar aap paise invest karne ya join karne ka soch rahe hain, toh koi bhi decisio
 
 For more info on this, watch below video 👇
 
-[![Watch the video](https://img.youtube.com/vi/F7UWrLeyGGY/maxresdefault.jpg)](https://www.youtube.com/watch?v=F7UWrLeyGGY)
+[![Watch the video](https://img.youtube.com/vi/F7UWrLeyGGY/maxresdefault.jpg)](https://careerfixx.in/)
 
 <p align="center">
   <strong>🎥 Watch the video below <br>👇 </strong>
-  <br><a href="https://www.youtube.com/watch?v=F7UWrLeyGGY">https://www.youtube.com/watch?v=F7UWrLeyGGY</a>
+  <br><a href="https://careerfixx.in/">https://www.youtube.com/watch?v=F7UWrLeyGGY</a>
 </p>
 <br>
