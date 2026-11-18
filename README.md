@@ -1,4 +1,4 @@
-# Career Fixx 50% OFF Sponsor Discount Code
+# 50% OFF Career Fixx Sponsor Discount Code for New User
 
 [![careerfixx](https://raw.githubusercontent.com/azazshaikh31/careerfixx/refs/heads/main/261108135803.jpg)](https://careerfixx.com/?referrer_code=AZAZ75018)
 
